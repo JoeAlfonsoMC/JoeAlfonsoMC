@@ -32,9 +32,11 @@
 ---
 
 ## 📫 **How to Reach Me**  
-- 💌 Email: [joealfonsomc@example.com](mailto:joealfonsomc@example.com)  
-- 💼 LinkedIn: [linkedin.com/in/joealfonsomc](https://linkedin.com/in/joealfonsomc)  
-- 🐦 Twitter: [@JoeAlfonsoMC](https://twitter.com/JoeAlfonsoMC)  
+- 💌 Email: [dakaisersthul@gmail.com]
+- 💼 LinkedIn: [www.linkedin.com/in/klsdaed]
+
+)  
+  
 
 ---
 
